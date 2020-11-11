@@ -1,1 +1,1 @@
-# apart
+# aparta i shi te ru
